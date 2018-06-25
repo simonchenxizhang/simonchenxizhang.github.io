@@ -1,2 +1,2 @@
-### Thank you for visit ###
+### Thank you for visiting ###
 Simon's Website !
